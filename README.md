@@ -1,2 +1,2 @@
-compatibility is essential for Usefull
+Compatiblity is essential for Usefull
 eAsly things like in this EXmaple
