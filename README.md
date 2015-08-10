@@ -1,4 +1,4 @@
-Compatiblity is essential for Usefull
-eAsly things like in this EXmaple
-Exmaples Exmaple Exmaple Usefull Exmaple.Exmaple-Compatiblity
+Aaa is essential for Aaa
+aaa things like in this AAA
+Exmaples Aaa Aaa Aaa Aaa.Aaa-Aaa
 easlyeasly
